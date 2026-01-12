@@ -168,4 +168,46 @@ IK and i are alike
 got me thinking
 because im pretty sure everybody feels the same
 
+---
+1/12/26
+why cant i be special
+how come everyone
+has cried themselves to bed
 
+
+i swore again
+fuck
+i guess they broke me
+
+
+today
+i cried
+i dont know why
+i just said
+sorry
+to my parents
+even though they couldnt hear
+
+i cried
+when i looked at myself in the mirror
+when i thought about how much i learned
+when i realized that im privileged
+tears are dry now
+but now i know
+
+anger bursts under pressure
+but not really
+under pressure
+it escapes
+under silent tears
+
+how come
+the more i know
+the less i know
+
+i keep writing on github
+maybe im weird
+but someday
+ill come back to this
+
+i was such an ass back then

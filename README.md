@@ -211,3 +211,14 @@ but someday
 ill come back to this
 
 i was such an ass back then
+
+---
+im gonna fucking medal at mit
+
+i will
+
+Through God
+
+For everyone
+
+and no one can stop me
